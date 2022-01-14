@@ -7,3 +7,5 @@ I am a Marine Biologist, I studied at University of Bologna for my Bachelor Degr
 
 ## **Is time to improve my skills!**
 Now, after I graduated in November 2020, I choose to improve myself, in fact I will do the course of Web and Mobile App Development at Cornerstone to be more competitive in the future! One of my first thing is that could help me to obtain a PhD in Marine Biology! Crossing fingers!
+
+![iamge](IMG_20191122_150204.jpg)
